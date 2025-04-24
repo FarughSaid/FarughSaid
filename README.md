@@ -38,4 +38,4 @@
 
 💼 LinkedIn: www.linkedin.com/in/me-at-linkd-in  
 📧 E-Mail: farugh_said@hotmail.com 
-🌐 
+🌐 https://www.get-in-it.de/mein-account/profil
